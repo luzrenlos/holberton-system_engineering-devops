@@ -1,1 +1,0 @@
-editare esto despues
